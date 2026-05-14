@@ -10,10 +10,13 @@
 <i>lin</i>ks
 <div align=center>
   
-[Ata](https://goodboi.atabook.org/) ۶ৎ [Rentry](https://rentry.co/fujomikeu)
+[Ata](https://goodboi.atabook.org/) ۶ৎ [Rentry](https://rentry.co/fujomikeu) 
+
+ ⊹ ꯭  [Alt](https://github.com/ASRlEL) ^_^
 </div>
 
 
 
 
 <img width="3000" height="250" alt="tumblr_0d147b94a2aa4f84a27158be44359852_e105bedd_2048" src="https://github.com/user-attachments/assets/7c2c5bcd-8a59-41f1-a891-4e96451eeac2" />
+
